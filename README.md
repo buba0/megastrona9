@@ -1,2 +1,0 @@
-# megastrona9
-niewiem
